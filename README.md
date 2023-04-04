@@ -1,8 +1,8 @@
 <p align="center">
-  <img src="resources/RiZoeLX.png" alt="RiZoeLXSpam Logo">
+  <img https://te.legra.ph/file/2fe32246e5f3f2368b2bd.jpg" alt="OgAstaad Logo">
 </p>
 <h6 align="center">
-  <b>• SᴘᴀᴍX Bʏ RɪZᴏᴇLX •</b>
+  <b>• SᴘᴀᴍX Bʏ 𓆩 ᴏɢ ✘ ᴀsᴛᴀᴀᴅ 𓆪•</b>
 </h6>
 
 ----
